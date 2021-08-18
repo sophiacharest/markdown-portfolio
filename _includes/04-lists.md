@@ -1,0 +1,4 @@
+- ✨ *My cat named Cheeto* ✨ 
+- French fries 🍟
+- Music 🎵
+- Plants 🌴
