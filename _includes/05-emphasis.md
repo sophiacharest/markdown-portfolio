@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+*Do what you feel in your heart to be right, for you'll be criticized anyway -Elanor Roosevelt* 💗 
