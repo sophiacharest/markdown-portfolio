@@ -1,1 +1,1 @@
-[GitHub] https://github.com/sophiacharest
+[GitHub] (https://github.com/sophiacharest)
