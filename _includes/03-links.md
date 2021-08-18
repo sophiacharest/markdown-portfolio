@@ -1,1 +1,1 @@
-###### ([Spotify] (https://open.spotify.com/))
+[text] (https://example.com/)
